@@ -1,0 +1,2 @@
+# People-s-Random-Thoughts
+# [People’s Random Thoughts]  **Notice:**   This repository is for **viewing only**. You may not copy, use, modify, or download any part of this project.    You are welcome to explore it for learning purposes, but all rights are reserved by [kaz064679-droid].
